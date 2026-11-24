@@ -5,6 +5,6 @@
 
 ## i dont like making it long either, so hope 2 lines are enough aha 
 
--do whatever u want but keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ
+-feel free to do whatever u want but keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ
 
 -a real slow typer; afk is when watching movies or studying 
