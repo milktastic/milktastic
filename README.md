@@ -7,4 +7,4 @@
 
 -feel free to do whatever u like but keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ
 
--a real slow typer; afk is when watching movies or studying 
+-i like watching ppl, seeing if there are ponies that from my fandom around; also a real slow typer and afk is when watching movies or studying 
