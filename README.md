@@ -12,13 +12,13 @@
 
 
 <p align="center"><details>
-  <summary> 
-    more infor, art and stuff</summary>
+  <summary> MORE INFOR, ART AND STUFF</summary>
   
   ### "?" section 
   - cheerful or completely in silence, no in between
 - im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
 - hkvh is my #1 ship, i love the alhaitham & kaveh ponies sm
+- aro ace infp any pronouns yada yada
 <p align="center">
   <img src="https://64.media.tumblr.com/b06210f61df7810e4be2f70cbbcdafec/495d99c3af2c3f20-1c/s1280x1920/d6050a55a88e4db5ade9eaec467489c41c1c209a.jpg" alt="do not take without permission" width="100%">
 </p>
@@ -53,22 +53,21 @@ this is old but its fushiii ToT !!
 </details>
 
 <details>
-  <summary>2nd section</summary>
+  <summary>2ND SECTION</summary>
   
-  ### for fun
+  ### idk i just want to add this random section 
 
 
-<a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s">i draw and i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
+<a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s"> i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
 
 
 <img src="https://64.media.tumblr.com/f69a2c8c50a1f7434fc8130816f7b541/97297f0b2b387de7-0c/s500x750/0600727ad8cf85091c5893eea804ce993f2a6c57.gifv" alt="Alt text description" width="400">
 </details>
 
 <details>
-  <summary>Click to expand section</summary>
+  <summary>INTERESTS</summary>
   
   ### Hidden Sub-section
   You can put any Markdown content here, including lists, images, or code blocks.
   *Note: Leave a blank line after the closing `</summary>` tag so Markdown renders properly inside.*
 </details>
-
