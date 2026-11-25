@@ -1,20 +1,28 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair&size=35&pause=1000&color=FFFFFF&width=1000&lines=Salutation%2C+welcome+to+my+ponytown+introduction+page+%28%E2%81%A0%C2%B4%E2%81%A0%E2%8A%99%E2%81%A0%CF%89%E2%81%A0%E2%8A%99%E2%81%A0%60%E2%81%A0%29%E2%81%A0%EF%BC%81" alt="Typing SVG"/></a>
-MUST READ:
-- interact freely !!!
-- u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ just... dont go aggressive over things on this game
+<img src="https://64.media.tumblr.com/f8bdebd584ceaf247dd509f68573d443/tumblr_ol1x5rXWIA1vj2b7to2_r1_400.pnj" width="120" height="80" alt="Natural"/><img src="https://64.media.tumblr.com/b8a419df945e53cdb5c9589a61ba26fc/tumblr_ol1x5rXWIA1vj2b7to1_400.pnj" width="120" height="80" alt="Natural"/>
 
-- i enjoy watching ppl, to see if there are ponies that are from my fandoms around; afk is when watching movies or studying 
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+
+MUST READ:
+ 
+ ╰┈➤ interact freely !!!
+
+ ╰┈➤ u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ just... dont go aggressive over things on this game
+
+ 
+ ╰┈➤ i enjoy watching ppl, to see if there are ponies that are from my fandoms around; afk is when watching movies or studying (sry for the reigen gif)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/55342de0345c0285b7cfe6731884b59f/b61c1f9090c24bac-04/s500x750/a7dd9c182b043fae225fc0639783d2524b53c007.gifv" alt="Project Banner" width="100%">
 </p>
 
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
 <details>
   <summary>INTERESTS (⁠´•ω•`⁠)⁠！</summary>
+  # 
   
-  ### yea
-skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
+╰┈➤ skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
 <p align="center">
   <img src="https://github.com/user-attachments/assets/12e3dc5d-be87-4714-b933-c0af7bd62029" alt="Project Banner" width="100%">
 </p>
@@ -27,11 +35,17 @@ skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeo
   <summary> MORE INFOR, ART AND STUFF (⁠´•ω•`⁠)⁠！</summary>
   
   ### "?" section 
-  - cheerful or completely in silence, no in between
-- im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
-- hkvh is my #1 ship (whyd i write this)
-- aro ace infp any pronouns yada yada
-- bad at introducing 
+
+╰┈➤ im very cheerful or completely in silence, no in between
+
+╰┈➤ im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
+
+╰┈➤ hkvh is my #1 ship (whyd i write this)
+
+╰┈➤ eng/viet aro ace infp any pronouns yada yada yada
+
+╰┈➤ bad at introducing 
+
 <p align="center">
   <img src="https://64.media.tumblr.com/b06210f61df7810e4be2f70cbbcdafec/495d99c3af2c3f20-1c/s1280x1920/d6050a55a88e4db5ade9eaec467489c41c1c209a.jpg" alt="do not take without permission" width="100%">
 </p>
@@ -71,9 +85,9 @@ this is old but its fushiii ToT !!
   ### idk i just want to add this random section 
 
 
-<a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s"> i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
+╰┈➤ <a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s"> i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
 
-flickr is peak flickr is goated
+╰┈➤ flickr is peak flickr is goated
 
 <img src="https://64.media.tumblr.com/f69a2c8c50a1f7434fc8130816f7b541/97297f0b2b387de7-0c/s500x750/0600727ad8cf85091c5893eea804ce993f2a6c57.gifv" alt="Alt text description" width="400">
 </details>
