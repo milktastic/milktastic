@@ -31,9 +31,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/3fb7d45e2486e941de750dee3667f64d/495d99c3af2c3f20-c9/s2048x3072/046437f0e73c5c789e84fa2448489f70c47127c5.pnj" alt="do not take without permission" width="100%">
 </p>
-<p align="center">
-  <img src="https://64.media.tumblr.com/1715f7de4e0d70f6a7ebd16d81d62abc/495d99c3af2c3f20-9a/s2048x3072/75e9a21eeafdbd5aaf7f7aa9efda62f8b8c243bf.pnj" alt="do not take without permission" width="100%">
-</p>
+
 <p align="center">
   <img src="https://64.media.tumblr.com/29653f517cb2d46753fa7466a4b5014e/e08a6518e222b288-08/s2048x3072/dfe1f987682ee6b99fed4cc0844b09972b0e9f46.pnj" alt="do not take without permission" width="100%">
 </p>
