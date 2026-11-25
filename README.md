@@ -8,8 +8,8 @@
 </p>
 
 # "?" section 
-- cheerful or complete silence, no in between
-- im a lazy unmotivated artist (which is why im playing the game instead of drawing..), pls be my friend if youre the same lmao, some of my doodles below ❨≡∀≡❩ゞ
+- cheerful or completely in silence, no in between
+- im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
 - hkvh is my #1 ship, i love the alhaitham & kaveh ponies sm
 - infp and mobile stuff
 <p align="center">
@@ -39,6 +39,7 @@ this is old but its fushiii ToT !!
 <p align="center">
   <img src="https://64.media.tumblr.com/809b1ecfa3d3b32dc6f25b048eb4b29a/e08a6518e222b288-f0/s2048x3072/7c1d08f543944f18d20b354cebf880ea8c20fdf2.pnj" alt="do not take without permission" width="100%">
 </p>
+- thanks for visiting, folks 
 <p align="center">
   <img src="https://64.media.tumblr.com/1f8cc46355c12700bc3167c31a00111d/29d30b23ed8b3ecc-23/s500x750/43a4960adb9a9244699bab1e82226f7de2936168.gifv" alt="mehehhehe" width="100%">
 </p>
