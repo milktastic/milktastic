@@ -1,6 +1,7 @@
-# SALUTATIONS (⁠≧⁠▽⁠≦⁠)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair&size=35&pause=1000&color=FFFFFF&width=1000&lines=Salutation%2C+welcome+to+my+ponytown+introduction+page+%28%E2%81%A0%C2%B4%E2%81%A0%E2%8A%99%E2%81%A0%CF%89%E2%81%A0%E2%8A%99%E2%81%A0%60%E2%81%A0%29%E2%81%A0%EF%BC%81" alt="Typing SVG"/></a>
+MUST READ:
 - interact freely !!!
-- u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ we must not go aggressive over things on this game
+- u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ just... dont go aggressive over things on this game
 
 - i enjoy watching ppl, to see if there are ponies that are from my fandoms around; afk is when watching movies or studying 
 
