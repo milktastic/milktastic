@@ -15,7 +15,7 @@
   ### yea
 skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
 <p align="center">
-  <img src="https://64.media.tumblr.com/e54f2d11aa63ae7d43f7a52fc576f0ee/b61c1f9090c24bac-76/s400x600/e6bbb560cea99e548d37aaca276fb3161aa4aa77.gifv" alt="Project Banner" width="100%">
+  <img src="https://github.com/user-attachments/assets/12e3dc5d-be87-4714-b933-c0af7bd62029" alt="Project Banner" width="100%">
 </p>
 
 
