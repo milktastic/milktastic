@@ -51,3 +51,24 @@ this is old but its fushiii ToT !!
   <img src="https://64.media.tumblr.com/1f8cc46355c12700bc3167c31a00111d/29d30b23ed8b3ecc-23/s500x750/43a4960adb9a9244699bab1e82226f7de2936168.gifv" alt="mehehhehe" width="100%">
 </p>
 </details>
+
+<details>
+  <summary>2nd section</summary>
+  
+  ### for fun
+
+
+<a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s">i draw and i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
+
+
+<img src="https://64.media.tumblr.com/f69a2c8c50a1f7434fc8130816f7b541/97297f0b2b387de7-0c/s500x750/0600727ad8cf85091c5893eea804ce993f2a6c57.gifv" alt="Alt text description" width="400">
+</details>
+
+<details>
+  <summary>Click to expand section</summary>
+  
+  ### Hidden Sub-section
+  You can put any Markdown content here, including lists, images, or code blocks.
+  *Note: Leave a blank line after the closing `</summary>` tag so Markdown renders properly inside.*
+</details>
+
