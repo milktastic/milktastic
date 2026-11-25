@@ -35,6 +35,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/29653f517cb2d46753fa7466a4b5014e/e08a6518e222b288-08/s2048x3072/dfe1f987682ee6b99fed4cc0844b09972b0e9f46.pnj" alt="do not take without permission" width="100%">
 </p>
+this is old but its fushiii ToT !!
 <p align="center">
   <img src="https://64.media.tumblr.com/809b1ecfa3d3b32dc6f25b048eb4b29a/e08a6518e222b288-f0/s2048x3072/7c1d08f543944f18d20b354cebf880ea8c20fdf2.pnj" alt="do not take without permission" width="100%">
 </p>
