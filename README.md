@@ -9,6 +9,17 @@
 </p>
 
 
+<details>
+  <summary>INTERESTS</summary>
+  
+  ### yea
+skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
+<p align="center">
+  <img src="https://64.media.tumblr.com/e54f2d11aa63ae7d43f7a52fc576f0ee/b61c1f9090c24bac-76/s400x600/e6bbb560cea99e548d37aaca276fb3161aa4aa77.gifv" alt="Project Banner" width="100%">
+</p>
+
+
+</details>
 
 
 <p align="center"><details>
@@ -17,8 +28,9 @@
   ### "?" section 
   - cheerful or completely in silence, no in between
 - im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
-- hkvh is my #1 ship, i love the alhaitham & kaveh ponies sm
+- hkvh is my #1 ship (whyd i write this)
 - aro ace infp any pronouns yada yada
+- bad at introducing 
 <p align="center">
   <img src="https://64.media.tumblr.com/b06210f61df7810e4be2f70cbbcdafec/495d99c3af2c3f20-1c/s1280x1920/d6050a55a88e4db5ade9eaec467489c41c1c209a.jpg" alt="do not take without permission" width="100%">
 </p>
@@ -53,21 +65,14 @@ this is old but its fushiii ToT !!
 </details>
 
 <details>
-  <summary>2ND SECTION</summary>
+  <summary>3RD SECTION</summary>
   
   ### idk i just want to add this random section 
 
 
 <a href="https://youtu.be/T1iKBhgZFdE?si=VCE_oNF80233-H-s"> i like old stuff (compact cameras, dead websites, mp3 players, 3Ds,...)</a>
 
+flickr is peak flickr is goated
 
 <img src="https://64.media.tumblr.com/f69a2c8c50a1f7434fc8130816f7b541/97297f0b2b387de7-0c/s500x750/0600727ad8cf85091c5893eea804ce993f2a6c57.gifv" alt="Alt text description" width="400">
-</details>
-
-<details>
-  <summary>INTERESTS</summary>
-  
-  ### Hidden Sub-section
-  You can put any Markdown content here, including lists, images, or code blocks.
-  *Note: Leave a blank line after the closing `</summary>` tag so Markdown renders properly inside.*
 </details>
