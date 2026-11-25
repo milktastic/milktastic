@@ -38,7 +38,7 @@ MUST READ:
 
 ╰┈➤ im very cheerful or completely in silence, no in between
 
-╰┈➤ im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
+╰┈➤ im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls tell me if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
 
 ╰┈➤ hkvh is my #1 ship (whyd i write this)
 
