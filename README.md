@@ -1,5 +1,5 @@
 # SALUTATIONS (⁠≧⁠▽⁠≦⁠)
-- u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ we all must not go aggressive over things on this game
+- u can do whatever u want but please keep in mind that the basic social conduct online is exactly the same as in real life alright ❨≡∀≡❩ゞ we must not go aggressive over things on this game
 
 - i enjoy watching ppl, to see if there are ponies that are from my fandoms around; afk is when watching movies or studying 
 
