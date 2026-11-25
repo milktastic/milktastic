@@ -10,7 +10,7 @@
 
 
 <details>
-  <summary>INTERESTS</summary>
+  <summary>INTERESTS (⁠´•ω•`⁠)⁠！</summary>
   
   ### yea
 skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
@@ -23,7 +23,7 @@ skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeo
 
 
 <p align="center"><details>
-  <summary> MORE INFOR, ART AND STUFF</summary>
+  <summary> MORE INFOR, ART AND STUFF (⁠´•ω•`⁠)⁠！</summary>
   
   ### "?" section 
   - cheerful or completely in silence, no in between
@@ -65,7 +65,7 @@ this is old but its fushiii ToT !!
 </details>
 
 <details>
-  <summary>3RD SECTION</summary>
+  <summary>3RD SECTION (⁠´•ω•`⁠)⁠！</summary>
   
   ### idk i just want to add this random section 
 
