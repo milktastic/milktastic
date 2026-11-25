@@ -22,7 +22,7 @@ MUST READ:
   <summary>INTERESTS (⁠´•ω•`⁠)⁠！</summary>
   # 
   
-╰┈➤ skins uk, adventure time, tv series, movies, bands, cartoons, yume nikki, dungeon meshi, to your eternity, truvamp stageplays, no.6, mp100, hikaru no go, hnk, funger, gi, r1999, ranfren, southpark, smiling friends and so on
+╰┈➤ Skins Uk, Adventure Time, Tv Series, Movies, Bands, Cartoons, Yume Nikki, Dungeon Meshi, To Your Eternity, TRUVAMP Stageplays, No.6, Mp100, Hikaru No Go, Hnk, Funger, Gi, R1999, Ranfren, Southpark, Smiling Friends and so on
 <p align="center">
   <img src="https://64.media.tumblr.com/f0f627aa42b2994bd341af74535e93cd/9307f140e781352d-9f/s2048x3072/1e281482d310ea7c705c46fc193e00059894bfa0.pnj" alt="Project Banner" width="100%">
 </p>
