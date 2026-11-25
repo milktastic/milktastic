@@ -7,11 +7,17 @@
   <img src="https://64.media.tumblr.com/55342de0345c0285b7cfe6731884b59f/b61c1f9090c24bac-04/s500x750/a7dd9c182b043fae225fc0639783d2524b53c007.gifv" alt="Project Banner" width="100%">
 </p>
 
-# "?" section 
-- cheerful or completely in silence, no in between
+
+
+
+<p align="center"><details>
+  <summary> 
+    more infor, art and stuff</summary>
+  
+  ### "?" section 
+  - cheerful or completely in silence, no in between
 - im a lazy unmotivated artist (which is why im playing the game instead of drawing rn..), pls be my friend if youre the same lmao// some of my doodles below ❨≡∀≡❩ゞ
 - hkvh is my #1 ship, i love the alhaitham & kaveh ponies sm
-- infp and mobile stuff
 <p align="center">
   <img src="https://64.media.tumblr.com/b06210f61df7810e4be2f70cbbcdafec/495d99c3af2c3f20-1c/s1280x1920/d6050a55a88e4db5ade9eaec467489c41c1c209a.jpg" alt="do not take without permission" width="100%">
 </p>
@@ -43,3 +49,4 @@ this is old but its fushiii ToT !!
 <p align="center">
   <img src="https://64.media.tumblr.com/1f8cc46355c12700bc3167c31a00111d/29d30b23ed8b3ecc-23/s500x750/43a4960adb9a9244699bab1e82226f7de2936168.gifv" alt="mehehhehe" width="100%">
 </p>
+</details>
