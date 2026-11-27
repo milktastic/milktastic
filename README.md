@@ -18,7 +18,7 @@ MUST READ:
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/7c8b9ef68ee6ba0c56202fa1a18a4de9/c4cdb1108df8d1da-d3/s1280x1920/71c1354e530371f6c360fdf2e927f22f7d9cfad4.jpg" alt="do not take without permission" width="100%">
+  <img src="https://64.media.tumblr.com/923b5c17b9572920bcf3e093e496966c/c4cdb1108df8d1da-78/s1280x1920/209bfd19cfbf4dd8fcedf473820a9f7c7e59dd3d.pnj" alt="do not take without permission" width="100%">
 </p>
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
