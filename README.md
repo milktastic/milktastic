@@ -3,11 +3,6 @@
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/923b5c17b9572920bcf3e093e496966c/c4cdb1108df8d1da-78/s1280x1920/209bfd19cfbf4dd8fcedf473820a9f7c7e59dd3d.pnj" alt="do not take without permission" width="100%">
-</p>
-
-
 MUST READ:
  
  ╰┈➤ interact freely !!!
@@ -107,5 +102,9 @@ old phos drawing (i just love them)
 
 <img src="https://64.media.tumblr.com/f69a2c8c50a1f7434fc8130816f7b541/97297f0b2b387de7-0c/s500x750/0600727ad8cf85091c5893eea804ce993f2a6c57.gifv" alt="Alt text description" width="400">
 </details>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/923b5c17b9572920bcf3e093e496966c/c4cdb1108df8d1da-78/s1280x1920/209bfd19cfbf4dd8fcedf473820a9f7c7e59dd3d.pnj" alt="do not take without permission" width="100%">
+</p>
 
  <img src="https://64.media.tumblr.com/46359c02a656ac67dab7d4603b914919/2892937afd63c936-f7/s100x200/c3dc3572d8858cae1ace17d88c688ebc40898ac6.gifv" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/8dea5dbdb497bfeec7c7ecff405840a3/f9a070a222ea603e-ae/s100x200/f2018a38866d08a31eaeecbe9c810bbbb105de17.pnj" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/ce786a622a64611a8da60410b8e4a1eb/f9a070a222ea603e-cd/s100x200/2ec3eaee2fe1d943449ad1aa8c7de6b956f4f0a3.pnj" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/7f34c15bf08c9dd6b879443bf9543b08/772a6c5f5f7c3182-33/s100x200/57ccd2f1e74cfb1477a01b0888c2424d46fffa6e.gifv" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/90ebedb6ecb0340940f0e8a19f386971/97db54b71734978d-93/s100x200/91a8b30abe186003a9ca80af359a6237d720efba.gifv" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/ce8b2fe79934509da0ce262ee082a894/18da8bdfad19ebd4-2e/s100x200/ff2eb459fe4b61a9c703c67ab915d90f7422cda7.gifv" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/9f7602cee41cef54cffde7052ac62b9b/2392e7c1f6f7c3e5-8e/s100x200/b9e6c9d9854cc5c63659aef5b5d14aabd873d80b.gifv" width="120" height="80" alt="Natural"/> <img src="https://64.media.tumblr.com/7ba9fa1d62fd8b52f1abc680d8b7b7e6/177ed421a9a63b29-9d/s100x200/da74b7dc0788f6c836f78affa42a10796f09a6c2.gifv" width="120" height="80" alt="credit: neosprites on Tumblr"/>
