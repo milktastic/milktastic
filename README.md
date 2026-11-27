@@ -19,7 +19,7 @@ MUST READ:
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
 <details>
-  <summary>INTERESTS (⁠´•ω•`⁠)⁠！</summary>
+  <summary>INTERESTS (⁠´•ω•`⁠)⁠!！</summary>
   # 
   
 ╰┈➤ Skins UK, Adventure Time, Tv Series, Movies, Bands, Cartoons, Yume Nikki, Dungeon Meshi, To Your Eternity, TRUVAMP Stageplays, No.6, MP100, Hikaru no Go, Houseki no Kuni, Funger, GI, R1999, Ranfren, Southpark, Bee n Puppycat, Smiling Friends, JJBA and so on
@@ -32,7 +32,7 @@ MUST READ:
 
 
 <p align="center"><details>
-  <summary> MORE INFOR, ART AND STUFF (⁠´•ω•`⁠)⁠！</summary>
+  <summary> MORE INFOR, ART AND STUFF (⁠´•ω•`⁠)⁠!!！</summary>
   
   ### "?" section 
 
